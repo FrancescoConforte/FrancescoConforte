@@ -6,6 +6,6 @@ I graduated in Electronic Engineering at [Università Politecnica Delle Marche](
 
 I would like to present you here some of my works I made both alone and with some of my collegues during my studies at Politecnico. 
 
-Feel free to comment them and ask me if you want to know more insights! Any comment will be appriciated! 
+Feel free to comment them and ask me if you want to know more insights! Any comment will be appreciated! 
 
 Enjoy!! 
